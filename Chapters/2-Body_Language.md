@@ -1,5 +1,5 @@
 ___
-# CHAPTER 2: Body Language
+# CHAPTER 2: The Correct Body Language
 
 _“If you focus on the things you can’t control, you’ll soon lose control of the things you can control” - John Wooden_
 
