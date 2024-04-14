@@ -11,7 +11,10 @@ Unconsciously, every second our body reflects our mental and emotional state thr
 
 Charisma is mostly dependent on body language rather than words. Good body language can make you charismatic without saying a word, while bad body language can hinder even the strongest message. Simply projecting presence, power, and warmth through your body language is enough to create a charismatic impression.
 
+
 &nbsp;
+
+
 # 1: Mirroring
 
 The fundamental principle of making yourself likable is quite simple: people like those who are like them. This originates from our evolutionary past, where identification of who belonged to our tribe was crucial for survival. Today, people continue to be drawn to those who share similar characteristics, interests, and value.
@@ -149,3 +152,7 @@ not respecting people’s personal-space preferences can create high levels of d
 To create a comfortable environment for someone, avoid seating them with their back facing an open space, particularly if others are moving around behind them. This seating arrangement can result in an increase in breathing rate, heart rate, and blood pressure. their discomfort would likely affect their perception of you.
 
 If you want to establish warmth it is recommended to avoid confrontational seating arrangements like the ones you see in job interviews. Instead, consider sitting either next to them or at a 90-degree angle.
+
+
+&nbsp;
+
