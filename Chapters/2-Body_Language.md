@@ -1,10 +1,9 @@
 ___
-
 # CHAPTER 2: Body Language
 
-_"It's how you looked when you said it, not what you actually said"_
-___
+_“If you focus on the things you can’t control, you’ll soon lose control of the things you can control” - John Wooden_
 
+___
 
 Language is a fairly recent invention in human evolution and is grasped first by people’s cognitive/logical minds. While nonverbal communication is deeply ingrained and affects us on an emotional level.
 
@@ -12,10 +11,7 @@ Unconsciously, every second our body reflects our mental and emotional state thr
 
 Charisma is mostly dependent on body language rather than words. Good body language can make you charismatic without saying a word, while bad body language can hinder even the strongest message. Simply projecting presence, power, and warmth through your body language is enough to create a charismatic impression.
 
-
 &nbsp;
-
-
 # 1: Mirroring
 
 The fundamental principle of making yourself likable is quite simple: people like those who are like them. This originates from our evolutionary past, where identification of who belonged to our tribe was crucial for survival. Today, people continue to be drawn to those who share similar characteristics, interests, and value.
@@ -67,7 +63,7 @@ Intonation, voice inflection, speed of speaking, and even accents also synchroni
 
 
 ___Using mirroring:___  
-In a new meeting with someone try to mirror their seating position, posture, body angle, gestures, expressions, and tone of voice. It can signal to them that you are engaged and interested in what they have to say and before long, they'll start to feel that there's something about you they like, as they’ll start to see aspects of themselves reflected in your behavior.
+When you meet someone new, subtly align your body posture, gestures, and tone of voice with theirs. It makes the other person feel that you are engaged and interested in what they have to say and before long, they'll start to feel that there's something about you they like, as they’ll start to see aspects of themselves reflected in your behavior.
 
 By mirroring positive nonverbal signals, you are essentially creating a nonverbal agreement or alignment with the other person. This can lead them to describe you as someone who is "easy to be with" because they feel a sense of familiarity and similarity.
 
