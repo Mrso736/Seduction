@@ -1,6 +1,6 @@
 A guide on Charisma written by me
 
-This guide contains most current knowledge of the subject. 
+This guide contains most of my current knowledge on the subject. 
 While it is not yet complete in its current form (from a text structure point of view),
 i intent to keep updating it if i gain new knowledge.
 
