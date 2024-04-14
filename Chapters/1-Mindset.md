@@ -1,15 +1,14 @@
 ___
-
 # CHAPTER 1: Charismatic Mindset
 
-_“It never ceases to amaze me: we all love ourselves more than other people, but care more about their opinion than our own.” - Marcus Aurelius_
+_“we all love ourselves more than other people, but care more about their opinion than our own.” - Marcus Aurelius_
+
 ___
 
+Charisma starts from within. Before you can project Charisma, you must first cultivate the right internal state. Every moment, whether you're aware of it or not, your inner state shapes your external presence through subtle but powerful cues—your posture, the tone of your voice, and the energy you emit. Mastering your inner world lays the vital foundation for outer charismatic expression.
 
 &nbsp;
-
-
-# 1: Confidence
+# 1: Presence
 
 Knowing your internal world starts with one key insight upon which all charisma is built: your mind can’t tell fact from fiction, imagining oneself performing an activity activates parts of the brain that are used in actually performing the activity.
 
@@ -18,7 +17,7 @@ Knowing your internal world starts with one key insight upon which all charisma 
 
 
 ___Visualization:___  
-This visualization is a great tool to increase the amount of power you want to convey.
+This visualization is a great tool to increase the amount of confidence you want to convey.
 
 1. Close your eyes and relax.
 1. Remember a past experience when you felt complete confidence.
@@ -52,13 +51,11 @@ Emotions and body language are so closely connected that by adopting a particula
     For confidence and assertiveness, try adopting a military general's posture: stand wide, puff up your chest, broaden your shoulders, 
     stand straight and confidently put your arms behind your back. Feel the effect of this posture internally.
   </dd>
-
   <dd>
     For a boost in both energy and warmth, stand up, stretch your hands as high up as possible, inhale as much as you can.
     Imagine your rib cage expanding, doubling in size. Make the biggest smile you can and look upward, hold for a second, and then relax everything.
   </dd>
 </dl>
-
 
 
 &nbsp;
@@ -165,18 +162,3 @@ A fast way to feel better when you’re feeling anxious is to flood your system 
 choose figures who represent complete self-confidence, or warmth and caring, or calm and serenity. Or you might even find some figures who embody all the elements at once. Visualize yourself going to these figures for a “pep talk” anytime you feel you need one. Thanks to the brain’s wonderful placebo response
 
 
-&nbsp;
-
-
-# 4: Conversational Mindset
-
-
-___Have a sense of belonging:___  
-Embrace the present moment and have a sense of belonging wherever you find yourself.  Adept to the mood and setting and show that that is where you belong at this moment in time.
-
-Imagine the guy that is standing in the corner on his phone at the party, he doesn’t belong.
-Now picture the person who knows their purpose and confidently fits into any setting.
-
-Don't let self-consciousness or shyness hold you back. Choose to believe that you are meant to be exactly where you are, and let that belief guide your actions and interactions. Embrace your surroundings, adapt to the mood, and radiate a genuine sense of belonging.
-
-Remember, you have the power to transform any situation into one where you feel confident, connected, and in sync with your environment.
