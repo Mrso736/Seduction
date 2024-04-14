@@ -1,13 +1,20 @@
 ___
-# CHAPTER 1: Charismatic Mindset
+# CHAPTER 1: Confident and Charismatic Mindset
 
 _“we all love ourselves more than other people, but care more about their opinion than our own.” - Marcus Aurelius_
 
 ___
 
-Charisma starts from within. Before you can project Charisma, you must first cultivate the right internal state. Every moment, whether you're aware of it or not, your inner state shapes your external presence through subtle but powerful cues—your posture, the tone of your voice, and the energy you emit. Mastering your inner world lays the vital foundation for outer charismatic expression.
+Charisma begins with an internal foundation of self-confidence. Before you can project Charisma, you must first cultivate the right internal state, but what is confidence exactly? The Latin word for confidence is, 'Fiducia', which means 'trust', referring to how self-assured someone is in their own abilities—feeling good about their skills and capabilities. 
+
+When we break down charisma into its three elements: "Presence", "Power", and "Warmth", confidence itself is a combination of both "Presence" and "Power". Presence is the mental aspect of confidence, being in the moment, not trapped inside your own head but actively focused on what is happening around you. Power, on the other hand, is the physical manifestation of confidence (which will we will be talking about in chapter 2). People tend to assess someone's confidence/power based on how they present themselves—their body language, their poise, and their overall demeanor.
+
+Every moment, whether you're aware of it or not, your inner state shapes your external presence through subtle but powerful cues—your posture, the tone of your voice, and the energy you emit. Mastering your inner world lays the vital foundation for outer charismatic expression.
+
 
 &nbsp;
+
+
 # 1: Presence
 
 Knowing your internal world starts with one key insight upon which all charisma is built: your mind can’t tell fact from fiction, imagining oneself performing an activity activates parts of the brain that are used in actually performing the activity.
@@ -51,6 +58,7 @@ Emotions and body language are so closely connected that by adopting a particula
     For confidence and assertiveness, try adopting a military general's posture: stand wide, puff up your chest, broaden your shoulders, 
     stand straight and confidently put your arms behind your back. Feel the effect of this posture internally.
   </dd>
+<br>
   <dd>
     For a boost in both energy and warmth, stand up, stretch your hands as high up as possible, inhale as much as you can.
     Imagine your rib cage expanding, doubling in size. Make the biggest smile you can and look upward, hold for a second, and then relax everything.
@@ -61,53 +69,7 @@ Emotions and body language are so closely connected that by adopting a particula
 &nbsp;
 
 
-# 2: Warmth
-
-People give great credence to the intentions they perceive you to have. So if, for instance, you can get yourself into a mental state of goodwill, this would show in your facial expressions and body language and register with people on a deep emotional level. People perceiving this would want to like you, want to see your behaviors and actions in the most positive way. Think of goodwill as your charisma safety net: as long as you can get into a state of goodwill, you will have the absolute best chances of getting your charisma right.
-
-
-&nbsp;
-
-
-___Gratitude:___  
-Appearing desperate can harm one's chances in various situations, from job interviews to dates. Gratitude is a great antidote to all of these negative emotions because it comes from thinking of things you already have, from material items to meaningful relationships. Even in challenging circumstances, reflecting on the things you are grateful for can shift your body language and demeanor to a more positive state, improve your mental performance, and boost your sense of security, confidence and warmth.
-
-One way to invoke a sense of gratitude is to focus on little things that are physically present. For instance, focus on little delights: the sun streaming through the window; blue skies; the temperature; or the existence, availability, and wonders of ketchup.
-
-Another good gratitude-enhancing tool is to view your life through a third-person lens, writing a narrative about yourself cast in a positive light.
-
-
-&nbsp;
-
-
-___Goodwill and Compassion:___  
-Goodwill improves how you feel as it floods your system with oxytocin and serotonin. It lessens our need to make the interaction succeed. When our only aim is to broadcast goodwill, it takes the pressure off. We’re no longer striving, struggling, pushing for things to go in a certain direction. And since we’re less concerned about how the interaction goes, we can both feel and project more charismatic confidence.
-
-To cultivate goodwill towards someone, try to identify at least three things to appreciate or approve of, even if these are as small as “their shoes are shining” or “they were on time.” When you start searching for positive elements, your mindset shifts, which impacts your body language and overall demeanor.
-
-In any interaction, imagine the person you’re speaking to, and all those around you, as having invisible angel wings. If even for a split second you can see someone as a fundamentally good being, this will soften and warm your emotional reaction toward them, changing your entire body language. Focusing on others' well-being is a crucial element of charisma, as it demonstrates that you genuinely care about them.
-
-
-&nbsp;
-
-
-___Self-Compassion:___  
-Self-compassion is how much warmth we can have for ourselves, especially when we’re going through a difficult experience. Its what helps us forgive ourselves when we’ve fallen short; it’s what prevents internal criticism from taking over and playing across our face
-
-Individuals who score high on self-compassion scales demonstrate greater emotional resilience to daily difficulties and fewer negative reactions to difficult situations.
-
-1. Sit comfortably, close your eyes, and take two or three deep breaths. As you inhale, imagine drawing in masses of clean air toward the top of your head; then let it whoosh through you from head to toe as you exhale, washing all concerns away.
-1. Think of any occasion in your life when you performed a good deed, however great or small. Just one good action—one moment of truth, generosity, or courage. Focus on that memory for a moment.
-1. Now think of one being, whether present or past, mythical or actual, who could have great affection for you. This could be a person, a pet, or even a stuffed animal.
-1. this being in your mind. Imagine their warmth, their kindness and compassion. See it in their eyes and face. Feel their warmth radiating toward you, enveloping you.
-1. See yourself through their eyes with warmth, kindness, and compassion. 
-1. Feel them giving you complete forgiveness for everything your inner critic says is wrong. You are completely and absolutely forgiven. You have a clean slate. Feel them giving you wholehearted acceptance. You are accepted as you are, right now, at this stage of growth, imperfections and all.
-
-
-&nbsp;
-
-
-# 3: Overcoming Anxiety
+# 2: Overcoming Anxiety
 
 Any internal discomfort, either physical or mental, can have a negative impact on your performance and how others perceive you. Our brains are wired to be uncomfortable with uncertainty. The minute our brain detects uncertainty, it sends out an error signal that often leads to anxiety and ultimately harms our charisma. It's hard to be fully present or emanate warmth when you're feeling anxious. Additionally, anxiety can lower your confidence, which can show up in your body language.
 
@@ -159,6 +121,54 @@ Focusing on the small physical sensations of discomfort serves a dual purpose: i
 
 A fast way to feel better when you’re feeling anxious is to flood your system with Oxytocin. Oxytocin instantly reverses the arousal of the fight-or-flight response. Imagining a twenty-second hug is enough to send oxytocin coursing through your veins.
 
-choose figures who represent complete self-confidence, or warmth and caring, or calm and serenity. Or you might even find some figures who embody all the elements at once. Visualize yourself going to these figures for a “pep talk” anytime you feel you need one. Thanks to the brain’s wonderful placebo response
+choose figures who represent complete self-confidence, or warmth and caring, or calm and serenity. Or you might even find some figures who embody all the elements at once. Visualize yourself going to these figures for a “pep talk” anytime you feel you need one. Thanks to the brain’s wonderful placebo response.
 
+
+&nbsp;
+
+
+# 3: Warmth
+
+People give great credence to the intentions they perceive you to have. So if, for instance, you can get yourself into a mental state of goodwill, this would show in your facial expressions and body language and register with people on a deep emotional level. People perceiving this would want to like you, want to see your behaviors and actions in the most positive way. Think of goodwill as your charisma safety net: as long as you can get into a state of goodwill, you will have the absolute best chances of getting your charisma right.
+
+
+&nbsp;
+
+
+___Gratitude:___  
+Appearing desperate can harm one's chances in various situations, from job interviews to dates. Gratitude is a great antidote to all of these negative emotions because it comes from thinking of things you already have, from material items to meaningful relationships. Even in challenging circumstances, reflecting on the things you are grateful for can shift your body language and demeanor to a more positive state, improve your mental performance, and boost your sense of security, confidence and warmth.
+
+One way to invoke a sense of gratitude is to focus on little things that are physically present. For instance, focus on little delights: the sun streaming through the window; blue skies; the temperature; or the existence, availability, and wonders of ketchup.
+
+Another good gratitude-enhancing tool is to view your life through a third-person lens, writing a narrative about yourself cast in a positive light.
+
+
+&nbsp;
+
+
+___Goodwill and Compassion:___  
+Goodwill improves how you feel as it floods your system with oxytocin and serotonin. It lessens our need to make the interaction succeed. When our only aim is to broadcast goodwill, it takes the pressure off. We’re no longer striving, struggling, pushing for things to go in a certain direction. And since we’re less concerned about how the interaction goes, we can both feel and project more charismatic confidence.
+
+To cultivate goodwill towards someone, try to identify at least three things to appreciate or approve of, even if these are as small as “their shoes are shining” or “they were on time.” When you start searching for positive elements, your mindset shifts, which impacts your body language and overall demeanor.
+
+In any interaction, imagine the person you’re speaking to, and all those around you, as having invisible angel wings. If even for a split second you can see someone as a fundamentally good being, this will soften and warm your emotional reaction toward them, changing your entire body language. Focusing on others' well-being is a crucial element of charisma, as it demonstrates that you genuinely care about them.
+
+
+&nbsp;
+
+
+___Self-Compassion:___  
+Self-compassion is how much warmth we can have for ourselves, especially when we’re going through a difficult experience. Its what helps us forgive ourselves when we’ve fallen short; it’s what prevents internal criticism from taking over and playing across our face
+
+Individuals who score high on self-compassion scales demonstrate greater emotional resilience to daily difficulties and fewer negative reactions to difficult situations.
+
+1. Sit comfortably, close your eyes, and take two or three deep breaths. As you inhale, imagine drawing in masses of clean air toward the top of your head; then let it whoosh through you from head to toe as you exhale, washing all concerns away.
+1. Think of any occasion in your life when you performed a good deed, however great or small. Just one good action—one moment of truth, generosity, or courage. Focus on that memory for a moment.
+1. Now think of one being, whether present or past, mythical or actual, who could have great affection for you. This could be a person, a pet, or even a stuffed animal.
+1. this being in your mind. Imagine their warmth, their kindness and compassion. See it in their eyes and face. Feel their warmth radiating toward you, enveloping you.
+1. See yourself through their eyes with warmth, kindness, and compassion. 
+1. Feel them giving you complete forgiveness for everything your inner critic says is wrong. You are completely and absolutely forgiven. You have a clean slate. Feel them giving you wholehearted acceptance. You are accepted as you are, right now, at this stage of growth, imperfections and all.
+
+
+&nbsp;
 
