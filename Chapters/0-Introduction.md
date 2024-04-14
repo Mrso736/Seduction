@@ -4,6 +4,7 @@ ___
 
 ___
 
+
 &nbsp;
 
 # What is Charisma?
@@ -18,6 +19,7 @@ By developing these elements, one can become more charismatic and influential in
 
 
 &nbsp;
+
 
 <dl>
   <dt><b>
@@ -42,7 +44,11 @@ By developing these elements, one can become more charismatic and influential in
   </dd>
 </dl>
 
+
 &nbsp;
 
 
 To appear charismatic, one should aim to possess all three elements, high power and high warmth and high presence. When we meet someone we look for clues like body language and appearance to help us make evaluations on each of these three elements. Expensive clothing leads us to assume wealth, friendly body language leads us to assume good intentions, a confident posture leads us to assume the person has something to be confident about. In short, people will tend to accept whatever image you project.
+
+
+&nbsp;
