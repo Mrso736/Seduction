@@ -1,55 +1,48 @@
 ___
 
-_“If you focus on the things you can’t control, you’ll soon lose control of the things you can control” - John Wooden_
+**Charisma is often felt before it's seen. It's the subtle yet profound ability to make others feel important and understood in your presence. By enhancing how others see themselves, charisma can transform everyday encounters into meaningful connections.**
+
 ___
 
 &nbsp;
 
 # What is Charisma?
 
-Charisma is a skill that can be developed through practice, rather than an innate trait that only a few people are born with. Contrary to popular belief, you do not have to be extroverted or attractive to be charismatic.
-And you don't have to change your personality.
+Have you ever met someone who instantly made you feel important and heard, someone that can walk into a room and naturally draw everyone's attention, not because of their looks or status, but because of how they present themselves to the world around them? That’s charisma in action. Rather than it being a innate trait that only a few people are born with; it's a skill called charisma.
 
-To appear charismatic, one should aim to possess both high power and high warmth,
-which can be achieved by asking oneself the power questions, "Fight or flight?" and the warmth question, "Friend or foe?"
+Charisma is the art of engaging, inspiring, and influencing those around you. Not by being extroverted or attractive but about how you connect with others.
 
-Charismatic individuals often choose specific behaviors that make others feel a certain way, and these behaviors can be learned and perfected by anyone.
-To become more charismatic, it is helpful to understand the three key elements of charisma: presence, power, and warmth.
+Charismatic individuals often choose specific behaviors that make others feel a certain way, and these behaviors can be learned and perfected by anyone. To become more charismatic, it is helpful to understand the three key elements of charisma: presence, power, and warmth.
+
 By developing these elements, one can become more charismatic and influential in their personal and professional lives, without having to change who they are as a person.
+
 
 &nbsp;
 
 <dl>
-  <dt>
+  <dt><b>
     Presence:
-  </dt>
+  </b></dt>
   <dd>
-    Being present means being aware of what's happening around you, rather than getting caught up in your own thoughts.
-    If you're not fully present, people will notice, even if it's just a split-second delay in your reactions.
+    Being present means being fully attentive and in the moment. Instead of being consumed by internal feelings or distractions, your focus is entirely outward—on the people around you or the situation you find yourself in. When you are truly present, you are not just physically there but are actively listening and responding to others, making them feel heard, acknowledged, and valued.
   </dd>
-  
-  &nbsp;
-
-  <dt>
+<br>
+  <dt><b>
     Power:
-  </dt>
+  </b></dt>
   <dd>
-    Power is about having the ability to affect the world around you, whether through authority,
-    expertise, or social status. We often look for signs of power in someone's appearance and body language.
+    Power is the perceived ability to influence or affect the world and others around you, being able to command attention whether through authority, expertise, social status. We often look for signs of power in how someone presents themselves, this can include clothing, body language, voice tonality, and an aura of confidence.
   </dd>
-
-  &nbsp;
-  
-  <dt>
+<br>
+  <dt><b>
     Warmth:
-  </dt>  
+  </b></dt>  
   <dd>
-    Warmth is all about whether or not people will want to use whatever power they have in others' favor.
-    Are they kind and caring, or do they only look out for themselves?
-    We can usually tell if someone is warm through their behavior and body language.
+    Warmth is all about whether or not people will want to use whatever perceived power they have in others favour, this involves making others feel accepted, understood, and valued through empathy and attention. Are they kind and caring, or do they only look out for themselves?
   </dd>
 </dl>
 
 &nbsp;
 
-Research has shown that warmth and power are the two main things we evaluate when we meet someone. We look for clues like body language and appearance to help us make these evaluations. Expensive clothing leads us to assume wealth, friendly body language leads us to assume good intentions, a confident posture leads us to assume the person has something to be confident about. In short, people will tend to accept whatever image you project.
+
+To appear charismatic, one should aim to possess all three elements, high power and high warmth and high presence. When we meet someone we look for clues like body language and appearance to help us make evaluations on each of these three elements. Expensive clothing leads us to assume wealth, friendly body language leads us to assume good intentions, a confident posture leads us to assume the person has something to be confident about. In short, people will tend to accept whatever image you project.
