@@ -1,5 +1,5 @@
 ___
-# CHAPTER 1: Confident and Charismatic Mindset
+# CHAPTER 1: A Charismatic and Confident Mindset
 
 _“we all love ourselves more than other people, but care more about their opinion than our own.” - Marcus Aurelius_
 
