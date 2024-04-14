@@ -9,6 +9,8 @@ Engaging in captivating conversations is a key attribute of charismatic individu
 
 
 &nbsp;
+
+
 # 1: First Impressions
 
 First impressions are extremely important as they can stay with people for years. While it is very easy to make a good impression, many people seem to have no idea what to say when meeting new people.
@@ -114,6 +116,7 @@ According to studies conducted by MIT Media Lab, people tend to remember how it 
 
 
 &nbsp;
+
 
 # 2: Listening
 
@@ -266,3 +269,7 @@ The next time you’re given a compliment, the following steps will help you ski
 1. Absorb the compliment, let it show on your face that they’ve had an impact.
 
 Thank them. Saying “Thank you very much” is enough, but you can take it a step further by thanking them for their thoughtfulness or telling them that they’ve made your day.
+
+
+&nbsp;
+
