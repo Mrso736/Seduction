@@ -1,6 +1,8 @@
 A guide on Charisma written by me
 
-This guide is not complete in its current form
+This guide already contains all my current knowledge of the subject. 
+While it is not yet complete in its current form, 
+i intent to keep updating it with the knowledge i gain.
 
 &nbsp;
 
