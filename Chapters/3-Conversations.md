@@ -1,14 +1,14 @@
 ___
-
 # CHAPTER 3: Conversational Charisma
 
-_"Talk to a man about himself and he will listen for hours" - Dale Carnegie_
+_"Talk to a man about himself and he will listen for hours" - Benjamin Disraeli_
+
 ___
+
+Engaging in captivating conversations is a key attribute of charismatic individuals. This chapter explores not just how to leave a memorable first impression or employ effective verbal techniques, but also how to harness the true essence of charisma. It's not merely about getting people to like you, but about making them like themselves more in your presence. By mastering the art of active listening, asking insightful questions, telling compelling stories, and using vocal techniques that draw people in, you enhance every interaction. Learn to make others feel heard and valued, and discover how to be genuinely engaging and charismatic.
 
 
 &nbsp;
-
-
 # 1: First Impressions
 
 First impressions are extremely important as they can stay with people for years. While it is very easy to make a good impression, many people seem to have no idea what to say when meeting new people.
@@ -37,11 +37,7 @@ Follow this up by open-ended questions like "What's the story behind it?" The wo
 
 
 ___Asking Their Name:___  
-The next step is to ask for their name.
-
-Like Dale Carnegie said, "A person's name is to them the sweetest sound in any language" their name is more interesting to them than all the other names on earth put together.
-
-Remember that name and call it easily, and you will have paid a subtle but very effective complement.
+After initiating a conversation, you can now ask for their name. Like Dale Carnegie said, "A person's name is to them the sweetest sound in any language" their name is more interesting to them than all the other names on earth put together. Make it a point to remember and use their name effortlessly throughout your interaction. This not only shows respect but also acknowledges that you see their unique identity.
 
 
 &nbsp;
@@ -50,7 +46,7 @@ Remember that name and call it easily, and you will have paid a subtle but very 
 ___Breaking the Ice:___  
 Keeping the conversation going can be achieved by asking open-ended questions such as “What brought you here tonight?” or “Where are you from?”
 
-Remember, it’s all about making them the center of conversation for as long as possible. “Talk to a man about himself, and he will listen for hours,” said Benjamin Disraeli. In fact, when you’re speaking, the one word that should pop up most often in your conversation is not “I” but “you”.
+Remember, it’s all about making them the centre of conversation for as long as possible. Imagine there being a spotlight above you while holding a conversation, the stoplight should be above your conversation partner for 90 percent of the time. In fact, when you’re speaking, the one word that should pop up most often in your conversation is not “I” but “you”.
 
 
 &nbsp;
